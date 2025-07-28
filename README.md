@@ -1,0 +1,2 @@
+# astrasigorta
+Bu domain satılıktır
